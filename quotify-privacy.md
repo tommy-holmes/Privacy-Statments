@@ -1,6 +1,6 @@
 # Privacy Policy for Quotify
 
-Effective Date: 19th Jan 2024
+Effective Date: 14th Feb 2024
 
 ## Introduction
 
